@@ -18,7 +18,7 @@ _Various, arranged by the Danish String Quartet (2017)_
 
 The Danish String Quartet properly formed at a Copenhagen Summer Festival in 2002, comprised of three Danish players and a Norwegian cellist.
 
-Last Leaf is the second album of “traditional” / “folk” music that the quartet has presented, featuring tunes from across the years and across the Nordic world. The quartet themselves helpfully describe the various works and their origins; we have gratefully included their words at the end of these notes.
+Last Leaf is the second album of “traditional” / “folk” music that the quartet has presented, featuring tunes from across the years and across the Nordic world. The quartet themselves helpfully describe the various works and their origins; we have gratefully included their words at the [end of these notes](#last-leaf---program-notes-courtesy-of-the-danish-string-quartet).
 
 We highly encourage you to appreciate these songs as one would in the comfort of one’s town, with friends, at a pub – smile, dance, hum.
  
